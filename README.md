@@ -2,4 +2,5 @@
 - 👋 Oi, meu nome é Nicolas Santos
 - 👀 Estou interessado em futebol
 - 🌱 Eu estou aprendendo informática
-- 📫 Como chegar até mim @nicolas.santos.lima@escola.pr.gov.br
+- 📫 Como chegar até mim @nicolas.santos.lima@escola.pr.gov.br ou pelo instagram
+- @_limanicolas_67
