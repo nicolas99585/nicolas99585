@@ -1,5 +1,5 @@
 - #Sobre mim
-- 👋 Oi, meu nome é Nicolas Santos
+- :moyai:  Oi, meu nome é Nicolas Santos De Lima
 - 👀 Estou interessado em futebol
 - 🌱 Eu estou aprendendo informática
 - 📫 Como chegar até mim @nicolas.santos.lima@escola.pr.gov.br ou pelo instagram
